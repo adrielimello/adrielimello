@@ -1,16 +1,20 @@
 ## Hi there 👋
+## Boas vindas ao perfil 💙
 
-<!--
-**adrielimello/adrielimello** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Adrieli ferreira de Mello🫀
 
-Here are some ideas to get you started:
+- Eu estudo no primeiro ano do ensino médio
+- Eu amo muito mexer com cavalos e bois🐴🐮
+- Moro com minha familia, meu pai Nereu, 
+minha mãe Rosiane, eu amo muito eles, 
+mas eu passo a maior parte do meu dia com a morena a nosa égua
+que foi para a Aparecida do Norte com o pai Nereu.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### você entrar em contato comigo
+
+mello.adrieli@escola.pr.gov.br
+
+@adrielimello
+
+![](https://media.tenor.com/yVnsMHtfWVwAAAAM/horse-kick.gif)
+[https://media.tenor.com/yVnsMHtfWVwAAAAM/horse-kick.gif](https://media.tenor.com/yVnsMHtfWVwAAAAM/horse-kick.gif)
